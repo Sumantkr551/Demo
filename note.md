@@ -1,0 +1,1 @@
+Hallucinations are perceptions that seem real but are not, and can include seeing, hearing, smelling, tasting, or feeling things that are not there. They can be as intense and realistic as sensory perceptions.
